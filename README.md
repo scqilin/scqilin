@@ -6,7 +6,4 @@
 - 🌱 Constantly learning and exploring new technologies in the field.
 - 👯 Open to collaborating with like-minded professionals in digital visualization.
 - 🤔 Looking for opportunities to help with digital visualization projects.
-- 💬 Ask me about data-driven storytelling and creating engaging visual experiences.
-- 📫 Reach me through [scqilin@icloud.com].
-- 😄 Pronouns: He/Him.
-- ⚡ Fun fact: I'm also a photography enthusiast.
+- 📫 Reach me through [scqilin@icloud.com].QQ：925277776.微信：jiuxiaoleiting.

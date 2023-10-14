@@ -6,4 +6,6 @@
 - 🌱 Constantly learning and exploring new technologies in the field.
 - 👯 Open to collaborating with like-minded professionals in digital visualization.
 - 🤔 Looking for opportunities to help with digital visualization projects.
-- 📫 Reach me through [scqilin@icloud.com].QQ：925277776.微信：jiuxiaoleiting.
+- 📫 [scqilin@icloud.com]
+- 📫 QQ：925277776
+- 📫 微信：jiuxiaoleiting
